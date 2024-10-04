@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Nikhil20050214
-- 👀 I’m interested in: not you
+- 👀 I’m interested in: something
 - 🌱 I’m currently learning: something
 - 💞️ I’m looking to collaborate on: nothing
 - 📫 How to reach me: you dont
